@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ijobaolachasewealth
-- 👀 I’m interested in learning how to build bots 
-- 🌱 I’m currently learning nothing, coz I'm new here
-- 💞️ I’m looking to collaborate on whatsapp 
-- 📫 How to reach me - +2347054766219
+- 👀 I’m interested in learning how to build all kinf of social media marketing assistance bots 
+- 🌱 I’m currently learning nothing, coz I'm new here and I'm ready to mingle and learn 
+- 💞️ I’m looking to collaborate with anybody who's willing to guide and put me through 
+- 📫 You can reach out to me on WhatsApp - +2347054766219
 - 😄 Pronouns: He, Him, His
 - ⚡ Fun fact: I'm a very honest and plain young man 
 
